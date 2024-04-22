@@ -1,0 +1,1 @@
+# Logick-operace-OR-NOT-a-AND
